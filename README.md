@@ -6,4 +6,4 @@
 ### Стать музыкантов
 
 ## Фото: 
-![Getting Started](images/img.jpg)
+![0338a11d-551d-4ad5-9474-359f7a36dea2](https://user-images.githubusercontent.com/116259332/197385205-cb0ace71-978a-4ebe-89fe-34ae3e055104.jpg)
